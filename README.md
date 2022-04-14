@@ -1,0 +1,1 @@
+# russia-noBG-contract
